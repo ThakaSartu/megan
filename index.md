@@ -1,3 +1,4 @@
+[The 3 Levels of Emotional Processing](https://www.nngroup.com/videos/3-levels-emotional-processing/)
 [SANTA_MONiKa](https://starguardian.riotgames.com/en-us/timeline/)
 ## TRAUMAZiNE_TOUR?
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7eFBtW7thc8F5g0T9HI91P?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
