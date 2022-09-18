@@ -2,6 +2,12 @@
 
 [He-Man Official | 3 HOUR COMPILATION | He-Man Full Episodes | Videos For Kids | Retro Cartoons](https://www.youtube.com/watch?v=kN3Jq_oNs44)
 
+
+##  thorowgood_grotesque
+Of all the forms most suited to being condensed, the sans is the easiest and most obvious. In the early part of the 1830s, all of the British foundries introduced the form. Thorowgood made one size with a delightfully expressive lowercase in 1834. Expanded from the original with additional weights and a matching italic, it is both impactful with a slightly unexpected, appealing character. 
+<img src="https://raw.githubusercontent.com/ThakaSartu/muna/master/assets/images/design_resources/CC.ThorowgoodOpen.10LineSansSurrphys.Birmingham-1400-xxx_q87.jpg" alt="Thorowgood Grotesque Collection">
+
+
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/EGknDT7llL4" title="The Return of Anubis | Space Sentinels | Full Episode | Retro Bites" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [The 3 Levels of Emotional Processing](https://www.nngroup.com/videos/3-levels-emotional-processing/)
