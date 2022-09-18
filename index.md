@@ -1,3 +1,5 @@
+[The information capacity of the human motor system in controlling the amplitude of movement.](https://www.semanticscholar.org/paper/The-information-capacity-of-the-human-motor-system-Fitts/634c9fde5f1c411e4487658ac738dcf18d98ea8d?p2df)
+
 [He-Man Official | 3 HOUR COMPILATION | He-Man Full Episodes | Videos For Kids | Retro Cartoons](https://www.youtube.com/watch?v=kN3Jq_oNs44)
 
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/EGknDT7llL4" title="The Return of Anubis | Space Sentinels | Full Episode | Retro Bites" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
