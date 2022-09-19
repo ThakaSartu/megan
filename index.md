@@ -1,3 +1,18 @@
+# Carl Jung on Alchemy
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/2AMu-G51yTY" title="Face To Face  |  Carl Gustav Jung (1959) HQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+![##CARL_JUNG](https://careerassessmentsite.com/wp-content/uploads/2015/11/Carl-Jung-.jpg)
+[Psychology and Alchemy by Carl Jung (1968) [Part I]](https://www.youtube.com/watch?v=COvafdy108A&t=8s)
+[The Undiscovered Self, by Carl Jung (audiobook)](https://www.youtube.com/watch?v=doAlX2WIpGk)
+[Carl Gustav Jung - Approaching The Unconscious - Psychology audiobooks](https://youtu.be/xZSbffrftd0)
+[Face To Face | Carl Gustav Jung (1959) HQ](https://www.youtube.com/watch?v=2AMu-G51yTY)
+[Carl Gustav Jung - Approaching The Unconscious - Psychology audiobooks](https://youtu.be/xZSbffrftd0)
+[Christ, a Symbol of the Self, by Carl Jung (audiobook)](https://www.youtube.com/watch?v=3xU2AMOdkEc)
+[Carl Gustav Jung - Man and his symbols parts 1-2 - Psychology audiobooks](https://www.youtube.com/watch?v=RyiccI0PZxM)
+[Carl Jung - Memories, Dreams, Reflections](https://www.youtube.com/watch?v=qE262Bt40SI)
+
+
+
 [The information capacity of the human motor system in controlling the amplitude of movement.](https://www.semanticscholar.org/paper/The-information-capacity-of-the-human-motor-system-Fitts/634c9fde5f1c411e4487658ac738dcf18d98ea8d?p2df)
 
 [He-Man Official | 3 HOUR COMPILATION | He-Man Full Episodes | Videos For Kids | Retro Cartoons](https://www.youtube.com/watch?v=kN3Jq_oNs44)
